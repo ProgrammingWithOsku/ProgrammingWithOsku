@@ -14,6 +14,6 @@
 
 😄 Pronouns: He/Him
 
-⚡ Fun fact: At 30, I'm a tech enthusiast who loves balancing my career with adventures and new discoveries.
+⚡ Fun fact: At 31, I'm a tech enthusiast who loves balancing my career with adventures and new discoveries.
 
 
